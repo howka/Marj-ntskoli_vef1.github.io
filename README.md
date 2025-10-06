@@ -1,2 +1,2 @@
-# Marj-ntskoli_vef1.github.io
+# Index skra
 vefsíðu hönnun1 tskóli
